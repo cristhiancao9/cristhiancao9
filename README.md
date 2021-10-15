@@ -1,5 +1,4 @@
-
-![52705](https://user-images.githubusercontent.com/33847674/137417284-051882ed-219f-4348-87f8-5288e5a2182a.jpg)
+![1](https://user-images.githubusercontent.com/33847674/137417834-58394488-c79f-425e-9ca4-31e2656ea918.jpg)
 
 ### Hi there 👋
 
