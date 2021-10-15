@@ -1,4 +1,4 @@
-![pc](https://user-images.githubusercontent.com/33847674/137419824-855cb60e-134b-43a0-9505-6339a4d8edf3.jpg)
+![pc2](https://user-images.githubusercontent.com/33847674/137420662-5788cb67-7ed1-446e-9f6c-4e2d8eccf675.jpg)
 
 ## Hi there 👋
 
