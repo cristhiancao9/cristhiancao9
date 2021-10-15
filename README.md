@@ -1,4 +1,4 @@
-![cubo](https://user-images.githubusercontent.com/33847674/137415683-51062196-032a-48aa-8ac4-f5571cd1ace4.jpg)
+![cafe](https://user-images.githubusercontent.com/33847674/137416471-cd39aac4-cef2-4d6c-97c2-46670eb4bd52.png)
 ### Hi there 👋
 
 <!--
