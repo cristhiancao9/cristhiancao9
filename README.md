@@ -1,8 +1,8 @@
 ![8](https://user-images.githubusercontent.com/33847674/137425324-20e785b8-fd62-49f3-9a68-b3126a1322dc.jpg)
 
 ## Hi, I'm Cristhian and I'm here to serve you 👋
-## <h3 align="center">Mechatronic Engineer🚀🚀</h3>
-## <h3 align="center">Full Stack Web Developer🚀🚀</h3>
+## <h3 align="center">Mechatronic Engineer⚙️</h3>
+## <h3 align="center">Full Stack Web Developer💻</h3>
 <!--
 **cristhiancao9/cristhiancao9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
