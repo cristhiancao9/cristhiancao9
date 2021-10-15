@@ -1,4 +1,4 @@
-![6](https://user-images.githubusercontent.com/33847674/137423309-27890442-3ae2-4d60-9c75-08ebbb53ba60.jpeg)
+![6](https://user-images.githubusercontent.com/33847674/137423545-0e813f74-b59c-465c-9566-5e0571dad7b4.jpeg)
 
 ## Hi there 👋
 
