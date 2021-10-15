@@ -1,4 +1,4 @@
-![imagen_2021-10-14_203819](https://user-images.githubusercontent.com/33847674/137418528-028b7abc-c5a5-4bf1-a5a2-0202d66201e1.png)
+![2](https://user-images.githubusercontent.com/33847674/137419071-cf255c36-263f-49ee-a0da-64b718e96ebf.png)
 
 ### Hi there 👋
 
